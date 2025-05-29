@@ -1,1 +1,1 @@
-[![DiscordProfile](https://fila.studiosoyu.com/discord/user/1279909054193602632?theme=dark&idleMessage=&detail=true&avatarDecoration=true&hideBadges=false&hideLastActivity=false)](https://discord.com/users/1279909054193602632)
+
